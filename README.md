@@ -1,5 +1,5 @@
 # Hey, i am Nhial
-About
+
 Experienced Monitoring, Research and Management Specialist with a strong background in data 
 analytics and project management. Skilled in coordinating with government institutions and 
 stakeholders to develop effective project strategies. Expertise in data collection, visualization, 
